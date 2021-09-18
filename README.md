@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ruben-Mendez
+- 👀 I’m interested in Crypto
+- 🌱 I’m currently learning this in FIN 798 at DePaul
+- 💞️ I’m looking to collaborate on understanding why Crypto isnt a elaborate Pyramid Scheme.
+- 📫 How to reach me: therubenmendez@gmail.com
